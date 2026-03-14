@@ -1,4 +1,4 @@
-# MAISONdes – アイウエ
+# MAISONdes – アイウエ - aiue (feat. Minami, SAKURAmoti)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
